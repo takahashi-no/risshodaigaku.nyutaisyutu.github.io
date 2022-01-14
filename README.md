@@ -1,0 +1,1 @@
+# risshodaigaku.nyutaisyutu.github.io
